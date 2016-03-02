@@ -353,7 +353,7 @@ at the British Museum”
 + Susan David Bernstein, “Researching Romola” from *Roomscapes* *
 + mind maps, concept maps, etc
 
-discussion and outline: Anna ; close reading: Nithya; criticism summary: ; seminar paper: ; break: Corey
+discussion and outline: Anna, Gaby ; close reading: Nithya; criticism summary: ; seminar paper: ; break: Corey
 
 ***
 
