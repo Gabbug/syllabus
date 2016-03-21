@@ -259,7 +259,7 @@ encylopedias; library catalogs; Moretti, etc on Victorian Bestsellers
 + in class workshop: data viz discussion with PJ: visualizing a corpus
 (novels or criticism)
 
-discussion and outline: Nithya, Anna; close reading: Gaby, Yumi; criticism summary: Corey, Luke ; seminar
+discussion and outline: Nithya, Anna; close reading: Gaby, Yumi; criticism summary: Corey, Luke, Gaby ; seminar
 paper: RJ, Adriana; break: Lanie
 
 March 24, 2016: [Claire Jarvis on "Almost Trollope" at Temple
@@ -319,7 +319,7 @@ Rerum, etc)
 ed. Elaine Freedgood and Cannon Schmitt, *Representations* 125 (Winter
 2014)
 
-discussion and outline: Lanie, Luke; close reading: Adriana, Yumi ; criticism summary: RJ, Nithya (*Representations* intro); seminar
+discussion and outline: Lanie, Luke, Gaby; close reading: Adriana, Yumi ; criticism summary: RJ, Nithya (*Representations* intro); seminar
 paper: Anna ; break: Nithya, Adriana
 
 #### April 18: optional but recommended paper-drafting open lab, LPAC
@@ -336,7 +336,7 @@ Critical Practice”*
 + selections from GE notebooks
 
 discussion and outline: Corey, Adriana ; close reading: Lanie, RJ; criticism summary: Yumi (Price), Luke; seminar
-paper: Nithya; break: Luke, RJ
+paper: Nithya, Gaby; break: Luke, RJ
 
 #### April 25: optional but recommended paper-drafting open lab, LPAC
 201, 1-4 pm
@@ -353,7 +353,7 @@ at the British Museum”
 + Susan David Bernstein, “Researching Romola” from *Roomscapes* *
 + mind maps, concept maps, etc
 
-discussion and outline: Anna ; close reading: Nithya; criticism summary: ; seminar paper: ; break: Corey
+discussion and outline: Anna, Gaby; close reading: Nithya, Gaby; criticism summary: ; seminar paper: ; break: Corey
 
 ***
 
