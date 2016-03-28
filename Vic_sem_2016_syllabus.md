@@ -319,7 +319,7 @@ Rerum, etc)
 ed. Elaine Freedgood and Cannon Schmitt, *Representations* 125 (Winter
 2014)
 
-discussion and outline: Lanie, Luke, Gaby; close reading: Adriana, Yumi ; criticism summary: RJ, Nithya (*Representations* intro); seminar
+discussion and outline: Lanie, Luke, Gaby; close reading: Adriana, Yumi ; criticism summary: RJ, Gaby, Nithya (*Representations* intro); seminar
 paper: Anna ; break: Nithya, Adriana
 
 #### April 18: optional but recommended paper-drafting open lab, LPAC
